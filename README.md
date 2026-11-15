@@ -1,121 +1,128 @@
 <div align="center">
 
-<img src="4d72ab629901c5124ebc237e333d432c.gif" width="100%">
+<img src="Untitled1110_20261115140517.png" width="100%" alt="Enzo's banner">
 
 <br><br>
 
-<img src="FB_IMG_1741010031735.jpg" width="155" alt="Profile picture">>
-
-<br>
-
 # ENZO
-###  𔘓    ׅ A STUDY IN ART, WORDS & EXISTENCE  ᩧ
+### SACRED ALTAR
 
-*An introduction to the person behind this account.*
+*An archive of personal interests, creative pursuits and collected sentiments.*
 
-✦ ──────────────── ✦
+VOL. 001 · PERSONAL EDITION
 
-**GRAPHIC DESIGNER · CREATIVE MIND · COLLECTOR OF MOMENTS**
+✦ ───────────────────── ✦
 
-<br>
-
-<img src="Untitled1096_20261110092617.png" width="1536" alt="Personal decorative banner">
-
-<br>
-
-[ About ](#about-me) · [ Series ](#favourite-series) · [ Music ](#favourite-songs) · [ Gallery ](#visual-archive) · [ Notice ](#copyright--ownership)
+[ INTRODUCTION ](#i-personal-record) ·
+[ SACRED ALTAR ](#ii-sacred-altar) ·
+[ MUSIC ](#iii-musical-collection) ·
+[ COPYRIGHT ](#iv-copyright--ownership)
 
 </div>
 
 ---
 
-## 𓂃 ABOUT ME
-<a id="about-me"></a>
+## I. PERSONAL RECORD
+<a id="i-personal-record"></a>
 
-> *A little about myself, my interests and creativity.*
+### THE INDIVIDUAL BEHIND THE ALTAR
 
 Greetings, I'm **Enzo**.
 
-A student and graphic designer with an appreciation for visual storytelling, literature, music and artistic expression.
+A student and graphic designer with an appreciation for visual storytelling, artistic compositions, literature and music.
 
-I find beauty in details, old-fashioned aesthetics, carefully arranged compositions and the things that words cannot always express.
+I find interest in the details of creative expression, the beauty of visual arrangements and the individuality of things worth remembering.
 
-| | |
+| ARCHIVAL DETAILS | INFORMATION |
 |:---|:---|
-| **Name** | Enzo |
-| **Pronouns** | He / him / She / Her / Any pronouns |
-| **Occupation** | Student & Graphic Designer [17-18] |
-| **Interests** | Graphic design, literature, music and writing |
-| **Aesthetic** | Vintage · Dark Academia · Editorial |
-| **Favourite palette** | Black · Wine red · Brown · White |
+| Name | Sora |
+| Alias | Enzo |
+| Pronouns | He / She / any |
+| Occupation | Student & Graphic Designer |
+| Nationality | Chinese and a mix of korean |
+| Favourite colours | Black · White · Red |
+| Aesthetic | Vintage · Dark Academia · Editorial |
+| Interests | Graphic design, literature, music and writing |
+| Discord | `rotofdivinity` |
 
 ---
 
-*Stories and fictional worlds worth remembering.*
+## II. SACRED ALTAR
+<a id="ii-sacred-altar"></a>
+
+*An assortment of personal interests, artistic inspirations and things that have earned a place in my collection.*
 
 <div align="center">
 
-
-</div>
-
----
-
-## 𓂃 FAVOURITE SONGS
-<a id="Unethical"></a>
-
-*An assortment of melodies that have found their way into my collection.*
-
-| NO. | TITLE | ARTIST |
-|:---:|:---|:---|
-| 01 | Unethical | By Faouzia |
-| 02 | Boys Beware | By Mad Tsai |
-| 03 | Okay | By Chase Atlantic |
-| 04 | I love you I'm sorry | By Gracie Abrams |
-| 05 | Born to Die | By Lana Del Rey |
-
----
-
-*A small collection of visual compositions, photographs and things worth keeping.*
+<img src="e654aba92432017e0bf618ab7de1f310.jpg" width="85%" alt="Sacred Altar animated image">
 
 <br>
 
-<img src="36c8de7f1e4025cff71e247279a593e4.gif" width="100%">
+<sub>FIG. 001 — A VISUAL REPRESENTATION OF MY INTERESTS</sub>
 
 </div>
 
+### A. FAVOURITE SERIES
+
+A collection of fictional worlds, narratives and characters I hold in high regard.
+
+- **01.** Mo dao Zu Shi
+- **02.** Attack On Titan
+- **03.** Tian Guan Ci Fu
+
+### B. PERSONAL INTERESTS
+
+- Graphic design and visual compositions.
+- Literature and creative writing.
+- Artistic expression and aesthetics.
+- Fictional characters and storytelling.
+
 ---
 
-## 𓂃 COPYRIGHT & OWNERSHIP
-<a id="copyright--ownership"></a>
+## III. MUSICAL COLLECTION
+<a id="iii-musical-collection"></a>
 
-### ALL RIGHTS RESERVED.
+*Melodies that have found their way into my personal collection.*
 
-I am a **graphic designer**. Every original graphic design, edit, visual composition and creative work displayed here is produced and owned by me unless otherwise credited.
+| NO. | TITLE | ARTIST |
+|:---:|:---|:---|
+| 001 | Unethical | Faouzia |
+| 002 | Line Without a Hook | ricky montgomery |
+| 003 | He's my man | luvcat |
+| 004 | I wanna be Yours | Arctic Monkeys |
+| 005 | Sweather Weather | The Neighbourhood |
 
-**STRICTLY PROHIBITED WITHOUT MY EXPLICIT PERMISSION:**
+---
 
-- Reposting or redistributing my work.
-- Editing, modifying or reproducing my creations.
-- Copying, tracing or claiming my work as your own.
-- Using my designs for personal or commercial purposes.
-- Taking my work for inspiration or reference without consent.
+## IV. COPYRIGHT & OWNERSHIP
+<a id="iv-copyright--ownership"></a>
 
-Please respect the time, effort and creativity invested in every piece.
+### ARTIST'S NOTICE — ALL RIGHTS RESERVED.
+
+I am a **graphic designer**. All original graphic designs, edits, visual compositions and creative works displayed or published by me belong to me unless otherwise credited.
+
+**UNAUTHORIZED USE IS STRICTLY PROHIBITED.**
+
+- No reposting or redistributing my works.
+- No editing, modifying or reproducing my creations.
+- No copying, tracing or claiming my works as your own.
+- No using my designs for personal or commercial purposes without permission.
+- No taking my works for inspiration or reference without consent.
+
+Please respect the time, effort and creativity invested in every creation.
 
 **No permission means no usage.**
 
 <div align="center">
 
-✦ ───────────────── ✦
+✦ ───────────────────── ✦
 
-### THANK YOU FOR STOPPING BY.
+### THANK YOU FOR VISITING.
 
-*Some things are made to be admired, not taken.*
+*An archive of things created, appreciated and remembered.*
 
-<br>
+**ENZO — SACRED ALTAR**
 
-**ENZO**
-<br>
 <sub>© All rights reserved.</sub>
 
 </div>
